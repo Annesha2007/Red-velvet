@@ -1,0 +1,1 @@
+Preparation for chicken biryani recipe 1 3 tablespoons plain yogurt (Indian curd) 2 1¼ tablespoons ginger garlic paste 3 ½ to 1 tablespoon garam masala (or biriyani masala) 4 ½ teaspoon salt 5 ½ to 1 teaspoon red chili powder (reduce for kids) 6 ¼ teaspoon ground turmeric 7 1 tablespoon lemon juice (optional)
