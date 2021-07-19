@@ -81,3 +81,5 @@ The restaurant-style chicken biryani recipe uses the whole chicken in preparatio
 If you want your chicken to be juicier in your biryani, do not remove the bone.
 If your cooked rice has turned sticky, spread it on a plate and leave it for 5 minutes. The rice will be separate and fluffy again.
 Freshly pound spices bring out the best taste in Chicken Biryani Recipe, so make sure that you dry roast all the whole spices for a good 2-3 minutes and then pound or grind them.
+
+thanks for visiting my webside.
